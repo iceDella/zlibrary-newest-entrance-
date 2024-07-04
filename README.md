@@ -10,11 +10,11 @@ This is a list for all methods to entrance Z—library
 
 https://topstip.com/the-worlds-largest-digital-library-z-library-newly-available-official-site-and-mirror/
 
-2.PC/手机端无需代理方法
+2.PC /手机端无需代理方法
 
 https://topstip.com/access-zlibrary-without-proxy-software/
 
-3.PC/MacOS/linux 电脑客户端下载
+3.PC / MacOS / linux 电脑客户端下载
 
 https://topstip.com/download-z-library-latest-pc-client/
 
@@ -38,7 +38,7 @@ https://topstip.com/kindle-terminates-service/
 
 https://topstip.com/mirrior-of-google-scholar-search/
 
-9. 墨水屏阅读器选购指南
+9.墨水屏阅读器选购指南
 
 https://topstip.com/e-paper-book-purchase-guide/
 
