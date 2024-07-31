@@ -2,7 +2,7 @@ This is a list for all methods to entrance Z—library
 
 这是我建立的所有进入 zlibrary 的方法合集
 
-包括如何下载、如何导入 kindle/图书 APP/微信读书
+包括如何下载、如何导入 kindle/图书 APP/微信读书以及一些比较实用的教程、Top10 开发者产品推荐
 
 主要包括：
 
@@ -14,7 +14,7 @@ https://topstip.com/the-worlds-largest-digital-library-z-library-newly-available
 
 https://topstip.com/access-zlibrary-without-proxy-software/
 
-3.PC / MacOS / linux z-librayry电脑客户端下载
+3.z-library 的 PC / MacOS / linux 电脑客户端下载（可以在线下载，不用保存到网盘）
 
 https://topstip.com/download-z-library-latest-pc-client/
 
