@@ -6,15 +6,15 @@ This is a list for all methods to entrance Z—library
 
 主要包括：
 
-1.网页版最新域名（需代理）
+1.网页版最新域名（需代理）和镜像站（无需代理）
 
 https://topstip.com/the-worlds-largest-digital-library-z-library-newly-available-official-site-and-mirror/
 
-2.PC /手机端无需代理方法
+2.PC /手机端无需代理方法【原理是用在线代理】
 
 https://topstip.com/access-zlibrary-without-proxy-software/
 
-3.PC / MacOS / linux 电脑客户端下载
+3.PC / MacOS / linux z-librayry电脑客户端下载
 
 https://topstip.com/download-z-library-latest-pc-client/
 
@@ -41,6 +41,22 @@ https://topstip.com/mirrior-of-google-scholar-search/
 9.墨水屏阅读器选购指南
 
 https://topstip.com/e-paper-book-purchase-guide/
+
+10.kindle 目前可用的6种传书方法
+
+https://topstip.com/kindle-import-books/
+
+11. WordPress 优化：如何有效阻止垃圾邮件注册和屏蔽广告
+
+https://topstip.com/wordpress-optimization-block-ads/
+
+12.Top10 兼具实用性与独特趣味性的独立开发产品推荐
+
+https://topstip.com/recommend-independently-products/
+
+13.Pintree 详细的使用教程
+
+https://topstip.com/pintree-personal-navigation-site/
 
 
 逐步搭建完善中
