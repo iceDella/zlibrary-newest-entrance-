@@ -22,7 +22,7 @@ https://topstip.com/download-z-library-latest-pc-client/
 
 https://topstip.com/e-book-resources-free-download-site/
 
-5. 谷歌 Gmail 邮箱注册教程
+5.谷歌 Gmail 邮箱注册教程
 
 https://topstip.com/gmail-signup-guide/
 
