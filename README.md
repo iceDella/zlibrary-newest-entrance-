@@ -18,43 +18,47 @@ https://topstip.com/access-zlibrary-without-proxy-software/
 
 https://topstip.com/download-z-library-latest-pc-client/
 
-4.谷歌 Gmail 邮箱注册教程
+4.2024 最全电子书资源下载网站合集 免费高质量下载电子书（z站、安娜的档案、LibGen、鸠摩搜书等都有！）
+
+https://topstip.com/e-book-resources-free-download-site/
+
+5. 谷歌 Gmail 邮箱注册教程
 
 https://topstip.com/gmail-signup-guide/
 
-5.美区 Apple ID 注册教程
+6.美区 Apple ID 注册教程
 
 https://topstip.com/2024-latest-apple-id-registration-tutorials/
 
-6.如何购买 Netflix 低价区会员以及各平台拼车价格对比
+7.如何购买 Netflix 低价区会员以及各平台拼车价格对比
 
 https://topstip.com/neflix-lowest-priced-memberships/
 
-7.kindle 如何换区和继续使用推送服务
+8.kindle 如何换区和继续使用推送服务
 
 https://topstip.com/kindle-terminates-service/
 
-8.谷歌学术/谷歌搜索镜像站合集
+9.谷歌学术/谷歌搜索镜像站合集
 
 https://topstip.com/mirrior-of-google-scholar-search/
 
-9.墨水屏阅读器选购指南
+10.墨水屏阅读器选购指南
 
 https://topstip.com/e-paper-book-purchase-guide/
 
-10.kindle 目前可用的6种传书方法
+11.kindle 目前可用的6种传书方法
 
 https://topstip.com/kindle-import-books/
 
-11. WordPress 优化：如何有效阻止垃圾邮件注册和屏蔽广告
+12. WordPress 优化：如何有效阻止垃圾邮件注册和屏蔽广告
 
 https://topstip.com/wordpress-optimization-block-ads/
 
-12.Top10 兼具实用性与独特趣味性的独立开发产品推荐
+13.Top10 兼具实用性与独特趣味性的独立开发产品推荐
 
 https://topstip.com/recommend-independently-products/
 
-13.Pintree 详细的使用教程
+14.Pintree 详细的使用教程
 
 https://topstip.com/pintree-personal-navigation-site/
 
