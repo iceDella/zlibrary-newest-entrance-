@@ -6,7 +6,7 @@ This is a list for all methods to entrance Z—library
 
 主要包括：
 
-1.网页版最新域名（需代理）和镜像站（无需代理）
+1.2024 zlibrary 网页版最新域名（需代理）和镜像站（无需代理）【本文持续更新】
 
 https://topstip.com/the-worlds-largest-digital-library-z-library-newly-available-official-site-and-mirror/
 
@@ -61,6 +61,10 @@ https://topstip.com/recommend-independently-products/
 14.Pintree 详细的使用教程
 
 https://topstip.com/pintree-personal-navigation-site/
+
+15.2024 超全的优质电报群组/ Telegram 频道/ Bot 机器人推荐
+
+https://topstip.com/telegram-channel-bot-group/
 
 
 逐步搭建完善中
