@@ -5,7 +5,7 @@
 
 ### 一、下载电子书合集
 
-#### : [2024 zlibrary 网页版最新域名（需代理）和镜像站（无需代理）【本文持续更新】](https://topstip.com/the-worlds-largest-digital-library-z-library-newly-available-official-site-and-mirror/)
+#### 1: [2024 zlibrary 网页版最新域名（需代理）和镜像站（无需代理）【本文持续更新】](https://topstip.com/the-worlds-largest-digital-library-z-library-newly-available-official-site-and-mirror/)
 
 
 #### 2: [PC /手机端无需 VPN 进入Zlibrary 的方法【原理是用在线代理】](https://topstip.com/access-zlibrary-without-proxy-software/)
