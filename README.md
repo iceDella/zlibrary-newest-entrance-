@@ -33,7 +33,7 @@
 #### 8: [kindle 目前可用的 6 种传书方法](https://topstip.com/kindle-import-books/)
 
 
-#### 9: [kindle 推出中国后 如何换区和继续使用邮箱推送服务](https://topstip.com/kindle-terminates-service/)
+#### 9: [kindle 退出中国后 如何换区和继续使用邮箱推送服务](https://topstip.com/kindle-terminates-service/)
 
 
 #### 10: [2000 元以下墨水屏阅读器选购指南](https://topstip.com/e-paper-book-purchase-guide/)
