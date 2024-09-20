@@ -14,7 +14,7 @@
 - #### 3: [z-library 的 Windows / MacOS / linux 电脑客户端下载（可以在线下载，不用保存到网盘）](https://topstip.com/download-z-library-latest-pc-client/)
 
 
-- #### 4: [2024 最全电子书资源下载网站合集 免费高质量下载电子书（z站、安娜的档案、LibGen、鸠摩搜书等都有！）](https://topstip.com/e-book-resources-free-download-site/)
+- #### 4: [2024 最全电子书资源下载网站合集 免费下载电子书（z站、安娜的档案、LibGen、鸠摩搜书等都有！）](https://topstip.com/e-book-resources-free-download-site/)
 
 
 - #### 5: [谷歌学术/谷歌搜索/ Sci-Hub 镜像站合集](https://topstip.com/mirrior-of-google-scholar-search/)
