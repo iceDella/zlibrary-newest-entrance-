@@ -1,11 +1,12 @@
-# This is a list for all methods to entrance Z—library
-这是我建立的所有进入 zlibrary 的方法合集
+# This is a list of all methods to entrance Z—Library
+这是经过整理目前所有可进入 zlibrary 的地址/方法合集
 
 包括如何下载、如何导入 kindle/图书 APP/微信读书以及一些比较实用的教程、Top10 开发者产品推荐
 
 ### 一、下载电子书合集
 
 - #### 1: [2024 zlibrary 网页版最新域名（需代理）和镜像站（无需代理）【本文持续更新】](https://topstip.com/the-worlds-largest-digital-library-z-library-newly-available-official-site-and-mirror/)
+   #### [-  For English Readers](https://unhss.com/newest-links-and-guides-of-zlibrary/)
 
 
 - #### 2: [PC /手机端无需 VPN 进入Zlibrary 的方法【原理是用在线代理】](https://topstip.com/access-zlibrary-without-proxy-software/)
