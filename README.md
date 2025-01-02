@@ -5,7 +5,7 @@
 
 ### 一、下载电子书合集
 
-- #### 1: [2024 zlibrary 网页版最新域名（需代理）和镜像站（无需代理）【本文持续更新】](https://topstip.com/the-worlds-largest-digital-library-z-library-newly-available-official-site-and-mirror/)
+- #### 1: [2025 zlibrary 网页版最新域名（需代理）和镜像站（无需代理）【本文持续更新】](https://topstip.com/the-worlds-largest-digital-library-z-library-newly-available-official-site-and-mirror/)
    #### [-  For English Readers](https://unhss.com/newest-links-and-guides-of-zlibrary/)
 
 
@@ -15,7 +15,7 @@
 - #### 3: [z-library 的 Windows / MacOS / linux 电脑客户端下载（可以在线下载，不用保存到网盘）](https://topstip.com/download-z-library-latest-pc-client/)
 
 
-- #### 4: [2024 最全电子书资源下载网站合集 免费下载电子书（z站、安娜的档案、LibGen、鸠摩搜书等都有！）](https://topstip.com/e-book-resources-free-download-site/)
+- #### 4: [2025 最全电子书资源下载网站合集 免费下载电子书（z站、安娜的档案、LibGen、鸠摩搜书等都有！）](https://topstip.com/e-book-resources-free-download-site/)
 
 
 - #### 5: [谷歌学术/谷歌搜索/ Sci-Hub 镜像站合集](https://topstip.com/mirrior-of-google-scholar-search/)
@@ -23,10 +23,10 @@
 
 ### 二、注册教程合集
 
-- #### 6: [ 2024 最新谷歌 Gmail 邮箱注册教程](https://topstip.com/gmail-signup-guide/)
+- #### 6: [ 2025 最新谷歌 Gmail 邮箱注册教程](https://topstip.com/gmail-signup-guide/)
 
 
-- #### 7: [ 2024 美区 Apple ID 注册教程](https://topstip.com/2024-latest-apple-id-registration-tutorials/)
+- #### 7: [ 2025 美区 Apple ID 注册教程](https://topstip.com/2024-latest-apple-id-registration-tutorials/)
 
 
 ### 三、Kindle 相关教程
@@ -61,16 +61,16 @@
 - #### 16: [如何购买 Netflix 低价区会员以及各平台拼车价格对比](https://topstip.com/neflix-lowest-priced-memberships/)
 
 
-- #### 17: [2024 超全的优质电报群组/ Telegram 频道/ Bot 机器人推荐](https://topstip.com/telegram-channel-bot-group/)
+- #### 17: [2025 超全的优质电报群组/ Telegram 频道/ Bot 机器人推荐](https://topstip.com/telegram-channel-bot-group/)
 
 
 - #### 18: [苹果 iOS / Mac 平台上优秀翻墙代理软件大盘点](https://topstip.com/ios-mac-software-for-fq/)
 
 
-- #### 19: [2024 最新可用的 ChatGPT、Claude 镜像站点汇总 国内可用 免翻](https://topstip.com/chatgpt-mirror-site-summary/)
+- #### 19: [2025 最新可用的 ChatGPT、Claude 镜像站点汇总 国内可用 免翻](https://topstip.com/chatgpt-mirror-site-summary/)
 
 
-- #### 20: [油管导航｜2024 值得一看的高质量 YOUTUBE 频道](https://topstip.com/youtube-channel-recommend/)
+- #### 20: [油管导航｜2025 值得一看的高质量 YOUTUBE 频道](https://topstip.com/youtube-channel-recommend/)
 
 ### 六、其余教程/分享
 
